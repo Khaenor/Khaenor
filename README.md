@@ -1,4 +1,4 @@
-- 👋 olá sou Khaenor
+👋 olá sou Khaenor
 
 apaixonado por tecnologia , jogos e ciéncia  
 
