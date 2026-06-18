@@ -2,7 +2,6 @@
 
 apaixonado por tecnologia , jogos e ciéncia  
 
-
 👋 Hello, I'm Khaenor
 
 I'm passionate about technology, games and science.
